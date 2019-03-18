@@ -1,2 +1,0 @@
-# kakarottooo.github.io
-blog
